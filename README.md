@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @W3roxe
+- Rosé is the definition of perfection
+- STREAM NEW ROSÉ ALBUM : https://open.spotify.com/album/5BQcoDfcZ8aBcikYX9B7Ob?si=zvrscaRLThq6C0eo9EByGQ
+- WATCH NEW ROSÉ CLIP https://youtu.be/CKZvWhCqx1s
